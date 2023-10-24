@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hello My name is Alla, i go to America for killing many many peoples.<br>I Like Killing proces...
+Hello My name is Alla, i go to America for killing many many peoples.<br>I Like Killing proces... And i love my Hoktemberian and others detail in this :)
 
 
 ## 🌐 Socials:
