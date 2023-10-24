@@ -1,6 +1,5 @@
 # 💫 About Me:
-Hello My name is Alla, i go to America for killing many many peoples.<br>I Like Killing proces... And i love my Hoktemberian and others detail in this :)
-
+Hello My name is Alla
 
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/https://www.linkedin.com/in/alla-papoyan-b28090240?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app) 
